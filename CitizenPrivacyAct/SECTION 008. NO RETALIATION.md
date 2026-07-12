@@ -1,0 +1,1 @@
+SECTION 8. NO RETALIATION. A controller may not deny a good or service, or provide a materially degraded version of one, solely because an individual declined to grant or chose to revoke a license under this part, beyond what Section 4(a) already permits.
